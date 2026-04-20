@@ -1,6 +1,3 @@
-Colby Hutchinson -
-What up gangsters, I'm ready to work on the group agreement.
-
 - How do you expect your fellow group members to participate?
 With respect, complete the pre-class activities to make sure you are on the same page, attend class, ask questions if you are stuck
 
